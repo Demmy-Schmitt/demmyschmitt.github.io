@@ -1,2 +1,2 @@
 # demmyschmitt.github.io
-Portfolio de Demmy SCHMITT, étudiant en BTS SIO
+Portfolio de Demmy SCHMITT, étudiante en BTS SIO
